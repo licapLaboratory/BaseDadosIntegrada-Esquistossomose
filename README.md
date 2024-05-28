@@ -1,0 +1,1 @@
+# BaseDadosIntegrada-Esquistossomose
